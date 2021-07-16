@@ -1,2 +1,0 @@
-# afrofart
-wtf
